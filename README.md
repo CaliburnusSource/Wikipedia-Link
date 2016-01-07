@@ -1,0 +1,1 @@
+EduWiki Facilita el trabajo de estudia e investigar de una forma completa. Tan solo podras darle Doble click el icono de EdiWiki y podras navegar, imprimir y guardar como PDF en tu Computadora,
